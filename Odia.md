@@ -1,3 +1,8 @@
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+
+> Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
+> [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
+
 #### ଦେଖିଲି ପିମ୍ପୁଡି, ଘୁରିବୁଲୁଥିଲା,
 #### ଏପଟରୁ ସେପଟକୁ,
 #### ତଳ ଓ ଉପର, ମୁହାଁ ହେଉଥିଲା,
@@ -37,4 +42,5 @@
 
 > ସତ୍ୟ ଘଣାବଳୀ।
 
-- ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Poem by ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Photo by Quang Nguyen Vinh from Pexels

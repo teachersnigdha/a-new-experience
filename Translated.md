@@ -1,3 +1,8 @@
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+
+> Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
+> [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
+
 ```
 I saw ants, wandering,
 From time to time,
@@ -27,6 +32,5 @@ Once I saw it, I guessed,
 Either false or true. ... (5)
 ```
 
-> The truth is.
-
-- Snigdha Rani Sahu
+- Poem by Snigdharani Sahoo
+- Photo by Quang Nguyen Vinh from Pexels
